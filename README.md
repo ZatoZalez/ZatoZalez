@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZatoZalez
+- 👀 I’m interested in stuff you probably don't enjoy.
+- 🌱 I’m currently learning mechanical math stuff.
+- 💞️ I’m looking to collaborate on nothing really.
+- 📫 Discord ZatoZalez#5106
